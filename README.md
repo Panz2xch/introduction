@@ -1,2 +1,2 @@
 # introduction
-I introduce myself to all of you, wait for my code!
+My Name Pann Youtube Channel : Panz2xch - I share free GM SAMP without buying for all of you, if you want a free code from me?? SUBSCRIBE 
